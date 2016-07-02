@@ -1,5 +1,4 @@
 #Petit jeu tranquille qui va être créé avec les NEEEEEGRES
-fdp pendez le
 Bien le bonjour à tous, je suis noir.
 Depuis ma tendre enfance, ma négritude a toujours été synonyme de rejet et de désepoir au sein de mes relations avec les autres humains.
 Ayant souvent songé au suicide, je commence depuis peu à accepter mes différences.
